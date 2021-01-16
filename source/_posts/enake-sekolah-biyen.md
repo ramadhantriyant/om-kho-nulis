@@ -2,6 +2,7 @@
 title: Enake Sekolah Biyen
 date: 2021-01-04 15:00:00
 tags:
+comments: false
 ---
 Tangi isuk ambek kemulan sarung terus api api (menghangatkan badan di  depan api) nang ngarepe diyang (perapian untuk hewan ternak), ambune yo tambah lebus (bau hewan), lha wong diyange iku teko tlethong (kotoran ternak) campur suket bekas pakane ternak. 
 Biasae ngunu iku ambek nunu (bakar) kaspe, opo tebu, enak dadi sedep, mesisan kango sarapan. 

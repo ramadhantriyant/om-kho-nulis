@@ -2,6 +2,7 @@
 title: Bang Jago, Balbalan
 date: 2021-01-16 15:00:00
 tags:
+comments: false
 ---
 Nek mari uts opo uas, nang sma mesti diadakno lomba olahraga antar kelas. Teko kelas siji sampek kelas telu, lombane diundi ambek ngawe sistem gugur, lombane onok catur, pingpong, volly, balbalan , badminton, sing pasti dakon, patil lele, gobak sodor, petak umpet gak melok dilombakan, soale iku dulinane arek ndeso. 
 Pas aku kelas telu, mari uts semester siji aku termasuk anggota balbalan sing diandalno, ancen asliku teko deso, athik bendino balbalan, sekolah adoh yo sepedaan, dadi wektu iku kecepatan dan daya tahan tubuh terasah. Rata rata arek kutho, opo maneh anake kaum priyayi, jarang gelem olahraga sing rodok berat, malah akeh sing gak nguasai /gak isok balbalan. 

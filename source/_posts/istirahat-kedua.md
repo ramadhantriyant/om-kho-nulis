@@ -2,6 +2,7 @@
 title: Istirahat Kedua
 date: 2021-01-05 15:00:00
 tags:
+comments: false
 ---
 Menggambar, pelajaran paling gak tak senengi, embuh aku iki kok nggak iso nggambar, padahal nggambar sederhana ae dadi kaku, aneh, lan lucu. Nggambar favorit yo nggambar gunung terus onok Srengenge ne ditambah dalan lan kali, wis ngunu thok, nek gak ngunu yo nggambar lemari, enak kotak thok, terus sikile lemari tak kongkon nggambar saleh, koncoku sing pinter nggambar. 
 Mosok nilai nggambar mesti oleh enem (6) ae, gak tau onok kemajuan. 

@@ -2,6 +2,7 @@
 title: Mlebu Sekolah Dasar
 date: 2021-01-03 15:00:00
 tags:
+comments: false
 ---
 Aku mlebu sekolah dasar tahun 1978, umurku pitung tahun. Wektu iku aku nunut didaftarno tonggoku, soale yo podo arep ndaftarno anake sing sakpantaran karo aku. 
 Mulai sekolah kelas siji diajari carane nyekel potlot, di kongkon nulis garis tegak, garis miring, bunder bunder, wis embuh opo ae aku lali, tapi sing pasti tulisane pating pecothot, mandes banget, kotor, teles, suwek kabeh, lha wong sampek kemringet gobyos. 

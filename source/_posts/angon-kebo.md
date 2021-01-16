@@ -2,6 +2,7 @@
 title: Angon Kebo
 date: 2021-01-12 15:00:00
 tags:
+comments: false
 ---
 Omah jaman biyen iku ciri khase nang ngarepe omah onok kandange kebo, semono ugo omahku. Dasare emang petani tulen, fungsi utama kebo yo kanggo mbantu kerjaan nang sawah koyoto mbrujul (membolak-balikan tanah utk persiapan sawah ditanami padi), nyingkal (mengolah tanah untuk polowijo) nggaru (menggemburkan dan meratakan tanah untuk sawah) lan liyane. Fungsi kedua yoiku kanggo investasi, tuku kebo rodok cilik utowo kebo kuru terus dirumat, engkok nek wis gede tur lemu, diijolno maneh sing cilik, dadi oleh balen. Hasile wong tani yo ngunu iku, panen teko sawah disimpen nang lumbung kanggo persediaan mangan setahun utowo nganti masa panen maneh, dene iwake (lauk) yo golek kulupan opo rambanan, jarang utowo hampir gak tau mangan pitik utowo daging, mungkin nek riyoyo utowo onok wong nduwe gawe (hajatan), baru iso mangan, iku pun paling sak cuwil. 
 Sakwise teko sekolah SD, jam loro tugasku yoiku angon kebo, kebo iku luwih manut timbang sapi, kadang tak giring nang lapangan, kadang cedek sawah, kadang nang tanggul cedek kali Brantas, tapi gak wani cedek kuburan soale aku wedi. Paling sering tak engon nang lapangan, soale ambek tak sambi balbalan. Angon jam loro nganti surup meh magrib, kebo tak giring nang kali Brantas perlune diadusi, aku yo melok adus pisan, wong ancen senengane adus kali, dadi sak durunge onok istilah kumpul kebo, aku kaet cilik wis kumpul kebo he.. hee.. he.. 

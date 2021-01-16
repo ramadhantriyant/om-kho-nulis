@@ -2,6 +2,7 @@
 title: Awal Mula Kesalahan Tanggal Lahirku
 date: 2021-01-03 15:00:00
 tags:
+comments: false
 ---
 Tahun  1978, itulah awal aku mulai sekolah, pendaftarannya aku diikutkan tetangga, karena mereka juga akan mendaftarkan anaknya yang sepantaran dengan saya, karena pada waktu belum ada akte kelahiran, maka pencatatan kelahiran hanya berdasarkan kartu kelahiran yang dikeluarkan desa. 
 Kartu kelahiranku yang sudah buruk rupa, lungset, dan tintanya mblobor, tentu sulit untuk membacanya, dan inilah awal malapetaka tentang tanggal lahir saya, di pendaftaran tanggal lahir saya 29-02-1971.

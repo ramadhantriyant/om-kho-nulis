@@ -2,6 +2,7 @@
 title: Gak Iso Ngaji
 date: 2021-01-08 15:00:00
 tags: 
+comments: false
 ---
 Langgar onok nang dusun ku kiro kiro tahun 84, pas aku kawitan mlebu SMP. Aku dilahirno onok keluarga abangan, dudu priyayi, dudu pegawe gupermen, dudu lingkungan wong sing agamis, biasa ae koyok wong kebanyakan alias wong ndeso. 
 Aku SD durung iso ngaji, tapi melok sembahyang masio jumat thok, kelas enem belajar ngaji ngeja alif bak tak, SMP wis iso moco nggratul nggratul. 

@@ -2,6 +2,7 @@
 title: Bapak, Kulo Nyuwun Ngapuro
 date: 2021-01-09 15:00:00
 tags:
+comments: false
 ---
 Jaman biyen tebu durung ditumpakno trek, tapi isih di langsir nganggo lori. Dadi nek pas nebang tebu kudu digawekno dalan lori sing menghubungkan tebu sing nang sawah nganti tekan dalan sepur. Terus lorine digeret sapi, kiro kiro telu sampek papat pasang, teko sawah nang dalan sepur.  Sepur tebu biyen isih nggawe bahan bakar kayu alias sepur uap, nek mlaku bengi isih ketok genine teko cerobong uape.
 Sekitaran kelas limo SD, aku ambek konco koncoku dolan nang tebangan tebu, dulinan lori tebu, lori disurung terus ditumpaki, ngunu ae wis seneng, nganti ngguyu lakak lakak. Nang rodane lori iku onok gemuk (lemak pelumas kental berwarna hitam di dalam celupan lilitan kayak goni ditaruh di suatu wadah tertentu)

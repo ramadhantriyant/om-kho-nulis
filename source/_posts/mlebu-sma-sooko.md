@@ -2,6 +2,7 @@
 title: Mlebu SMA Sooko
 date: 2021-01-10 15:00:00
 tags:
+comments: false
 ---
 Lulusan SMP tahun 87, danemku lumayan, arek arek podo gupuh daftar sma, aku rodok bingung antarane daftar SMA tah SMK, eh durung onok SMK onoke STM. Engkok nek STM di wuruki opo engkok, biyen iku STM senengane gelut, tawuran. 
 Akhire aku jupuk formulir sma 1 Gatul, formulir sik durung tak isi arek arek mbengok, ngejak daftar nang sma sooko, sma favorit saat itu. Aku sing wedian, gak wani, tapi kok arek sing daneme nang ngisorku kok podo daftar mrono, akhire formulir sma Gatul diganteni koncoku sing arep daftar mrono, aku daftar sma sooko. 

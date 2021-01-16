@@ -2,6 +2,7 @@
 title: Mlebu SMP
 date: 2021-01-16 15:00:31
 tags:
+comments: false
 ---
 Sekolah SD ku melok kabupaten jombang tapi pinggir wetan dewe, perbatasan karo mojokerto, tapi secara geografis dan ekonomis lebih dekat ke kota mojokerto, nang kecamatan ae luwih adoh timbang nang kota mojokerto. 
 Dadi nek ditakoni, sampeyan wong endi? Njawabe ndelok kondisi, lan nguntungno jawab mojokerto opo jombang, ktp jombang rasa Mojokerto. 

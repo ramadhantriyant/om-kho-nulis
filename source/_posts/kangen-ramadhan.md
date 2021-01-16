@@ -2,6 +2,7 @@
 title: Kangen Ramadhan
 date: 2021-01-13 15:00:00
 tags:
+comments: false
 ---
 Jombang, artine ijo lan abang, maksute iku kutho sing onok didua sisi yang berlainan, satu sisinya sangat religius, nggone wong santri, kyai, pondok pesantren. Tapi dilain sisi sing liyo, nggone utowo daerah sing nggak kesentuh, adoh soko agama, mungkin lebih condong ke kejawen, istilahe abangan. 
 Aku lahir nang Jombang, tapi pinggiran, adoh soko pusat kota, dalam lingkungan masyarakat abangan, dadi mesjid durung onok, onoke langgar (musholla) iku ae ngadek aku SMP kelas siji, dadi aku SD jarang sholat, tapi melok jum'atan nang deso sebelah, rodok adoh. 

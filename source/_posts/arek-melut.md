@@ -2,6 +2,7 @@
 title: Arek Melut
 date: 2021-01-11 15:00:00
 tags:
+comments: false
 ---
 Sekolah SMA Sooko adohe teko omahku kiro kiro 8 kiloan, biasae aku budal jam enem kurang seprapat, mlebu sekolah jam pitu, tapi jam setengah pitu kudu wis nang sekolahan, dadi genjote sepeda rodok banter. 
 Kadang onok koncoku sing pingin bareng budhal sekolah, padahal aku numpak sepeda jengki abang setengah prothol, aku yo heran sepedahku elek, tumpakane kriyet kriyet, arek arek yo akeh sing bareng, mungkin seneng onok koncone ngomong lan pingin ngrasakno sensasi numpak sepeda seyeg. 
