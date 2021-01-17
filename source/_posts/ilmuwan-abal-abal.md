@@ -1,5 +1,5 @@
 ---
-title: Gak Iso Ngaji
+title: Ilmuwan Abal-abal
 date: 2021-01-17 10:45:00
 tags:
 comments: false
