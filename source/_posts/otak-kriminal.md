@@ -1,5 +1,5 @@
 ---
-title: Aksi = Reaksi
+title: Otak Kriminal
 date: 2021-01-24 09:38:00
 tags:
 comments: false
