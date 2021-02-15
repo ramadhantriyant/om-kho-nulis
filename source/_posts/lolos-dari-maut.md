@@ -1,0 +1,17 @@
+---
+title: Lolos dari Maut
+date: 2021-02-15 21:20:00
+tags:
+comments: false
+---
+Ancen turu langgar iku penuh warna, lan onok ae ide sing nyleneh. Bener jare para motivator kondang tentang ungkapan the power of kepepet.
+Semakin kita kepepet maka akan timbul akal dan pikiran untuk menemukan jalan keluar, pokok gak sering sering kepepet, opo maneh kepepet trek gandeng.
+Arek ndeso jaman sakmono wis biasa gak nduwe duik, nek kepingin opo opo, yo leren golek disik, nang ndeso sembarang kalir wis cumepak, kari gelem tah nggak njupuk thok, tapi gak melok nduwe, tapi nek bengi jarene jatah arek langgaran.
+Mari magrib, rembukan ambek guyon, yok opo engkok bengi nek masak masakan ae, tapi bahane kudu tuku disik, gak ono nek njupuk wek e tanggane, iki mbutuhno duik.
+Koncoku sing nduwe gitar lan iso gitar, masio genjrengan elek elekan ngejak ngamen ae. Ambek boncengan papat nggawe sepeda unto, sepeda mari digawe kulakan sayur, aku mesti bagean nyetir, ancen aku paling tegen, tatag, lan kuat. Istilahe pewayangan iku jenenge  otot kawat balung thok, ancen kuru tapi lincah.
+Sakjane aku iki emoh melok, aku isin lan isinan, wedi kepethuk koncoku kutho, tapi demi kebersamaan, aku oke ae, tapi nggawe topi, tak blesno pisan, dadi gak kethok raine. Nyanyi, lagune mek rong werno nek gak lagu sepanjang jalan kenangan, yo naik bis kota. Kadang onok wong sing iseng request lagu liyane iku, ngomong ae, durung apal pak lik, ambekan sing nggitar yo gak isok kuncine. Ngamen nang daerah blooto, modele door to door, dan tidak mau di dor, aku bagean nggowo duite, kadang dikek i 25 rupiah, kadang 50 rupiah, malah onok sing 5 rupiah, ditrimo ae. Mungkin nogodinone gak cocok, mosok kaet sore olehe duik kok seret, akeh sing ngekek i limang ripis, sing bagean nggitar nggremeng ae, ayo nang alun alun mojokerto ae, antarane blooto ambek kutho mojokerto, sekitar pondok abah Yat, dipisahno kali (anak sungai Brantas) tapi onok jembatane sepur PJKA, dadi timbang muter adoh, terpaksa nyebrang lewat jembatan sepur. Iso dibayangno, nuntun sepeda unto, lewat jembatan sepur sing cuman dikek i papan sak lembar, ndlijir, dadi nek nuntun sepeda koyok akrobat, ban sepeda nang papan, terus sikile sing nuntun nang rel sepur.
+Koncoku sing nuntun sepeda, aku mburi dewe, teko sebrang onok wong nuntun sepeda, kate papasan nang tengah jembatan, krungu onok suarane bel sepur teko kadohan, wonge gupuh, bareng papasan nyenggol sepedahehe koncoku, ancen dalane mek sak papan balok thok. Koncoku mencelat, ceblok, tibo nang kali sing duwure kiro kiro 6 meteran, maringinu sepedahe nututi ceblok, aku ambek konco liyane pating bleber mbalik mudun lewat tanggul, wis gak ngreken wong sing nyenggol mau, wonge nggenthirit mlayu. Wektu iku musim kemarau, dadi banyu  kaline  mek sitik, sing akeh lumpur sing jerone nganti sak pupu (paha).
+Yo iki sing diarani blai Slamet, celaka tapi tetap selamat, ancen wong jowo iku akeh syukure, lha yok opo, koncoku ceblok nang sela selane Trucuk (kayu jati yang ditancapkan sebagai penahan arus air), misale pas Trucuk, lak iso dadi sate, koyok wong disunduki bambu runcing.
+Ndilalah yo gak ketiban sepeda pisan, sepedahe ceblok nang sisihe.
+Koncoku ambek sepedahe gak popo, ambek pringas pringis kelaran tak tolong munggah nang nduwur tanggul, kene wong papat gubrah lumpur, klambi, clono, sikil nganti rambut lumpur thok.
+Alkhamdulillah, tetep syukur, ancen nek durung pinesti mati, onok ae keajaiban.
