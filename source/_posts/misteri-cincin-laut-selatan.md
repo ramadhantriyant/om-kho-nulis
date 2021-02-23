@@ -1,0 +1,13 @@
+---
+title: Misteri Cincin Laut Selatan
+date: 2021-02-23 19:25:00
+tags:
+comments: false
+---
+Masio partikelir yo pengin mlaku mlaku, cek eruh padange howo, ben gak sutris bin linglung. Bareng sak keluarga budhal, diniati arep kemah nang pantai balekambang Malang, mesti nang endi endi kemah, alasane nduwe peralatan  kemah lengkap, tapi alesan lebih tepate ben ngirit, ora turu hotel, larang lan tujuane iku iso menyatu dengan alam, nek pengin turu enak yo nang omah ae. Isok dibayangno budhal sak keluarga, anak papat terus simbok ambek bapake, nggowo sepeda motor loro, nggowo perbekalan kemah ambek bontotan, jajan, panganan. Wis koyok sirkus, untung ae aku iki pensiunan driver moto GP kelas makadam.
+Budhal lewat jalur tengkorak, pacet-cangar-batu-malang, diluk diluk leren, mangan bontotan, sholat, kabeh dilakoni kanti ati seneng, masio boyok iki rodok protes, guyon sak dalan dalan.
+Budhal jam sepoloh awan, tekan balekambang jam limo sore, bokong iki rasane kandel, mati roso, boyok cedut cenut, tapi kabeh gak di roso, kalah karo bungahe ati, ndelok anak cilik playon, guyon gumuyu. Leren sediluk, nglemesno dengkul sak sikile ambek ngglendang nang nduwur pasir, cuek masio akeh uwong. Maringunu toto toto ngedekno tendo, nggowo tendo loro, turu dibagi loro, sing wedok nyiapno mangan, wong nggowo beras, mie instan, lan bontotan iwake isik onok. Pas magrib wis mari adus, sholat, terus mbeber kloso mangan masakan ala kadarnya, sing nggarai seneng duduk enak gak enake masakan, tapi royokan lan gelut royokan panganan, iki senine, belajar kompetisi tapi saling mengasihi. Jenenge kemah, turune yo jejer jejer koyok iwak pindang.
+Isuk mari subuhan, wis nglumpuk ngombe wedang opo teh, ambek ngemil camilan sisane wingi, ngenteni mbrudule Srengenge, jarene wong londo sunrise in the beach is very  beautiful, prasaku kok podo ae, Srengenge yo ngunu iku, wis kodrate, Sunatullah.
+Pas wis byar padang, wayahe bluron nang laut, sarehne laute surut, mulo karange muncul ketok kabeh nganti adoh nang tengah laut, banyune cetek lan gak onok ombak, gak seru tapi lumayanlah timbangane ngowoh. Aku ambek mbokne sarip mlaku mlaku ndelok iwak cilik cilik nganti adoh nang tengah, tapi kudu ati ati soale bulu babine, untung ae nggawe sandal jepit. Nek kenek opo ketusuk durine bulu babi iso gatel banget lan perih, tambane nggawe banyu uyuh.
+Pas molak malik watu, ndelok iwak singitan, ndilalah mbokne sarip nemu ali ali (cincin) cilik sing biasane digawe bayi, wis karaten, tapi tak pastekno iki emas asli soale karate semu ijo. Aku mbatin, iki cincine bayine sopo kok ceblok nang tengah laut, mosok cincine bayine nyi roro Kidul, nek nyi roro Kidul nduwe bayi terus bapakne sopo  ? Mosok selingkuh  ?
+Embuh lah, tapi cincine tak simpen nganti saiki.
