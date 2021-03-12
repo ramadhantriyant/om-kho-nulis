@@ -1,0 +1,12 @@
+---
+title: Melok UMPTN
+date: 2021-03-12 17:31:00
+tags:
+comments: false
+---
+Lulus SMA tahun 1990, roto roto koncoku podo pingin nglanjutno sekolah maneh alias pingin kuliah, dene aku wis pesimis disik, masio nilaiku apik lan hasil ujianku sangat memuaskan, tapi kenyataan aku gak nduwe hasrat kuliah. Memang dalam hati kecilku pingin sekolah pertanian nang Bogor, tapi aku percoyo Gusti Allah SWT bakal nunjukno dalan sing paling apik lan layak kanggo wong sing gelem usaha.  Aku ndungo rino kalawan wengi, ora njaluk opo opo, cuman aku pingin dituntun dalanku, diparingi urip sak wajare, sebab wong urip wis onok dalane, kabeh wis ginaris.
+Arek arek podo budhal nang suroboyo, sakperlu melok bimbingan belajar, intensif menghadapi ujian masuk perguruan tinggi (umptn), aku dewe kowah kokoh, lha wong buku pelajaran gak duwe, nulis yo jarang jarang, nduwe buku ringkasan soal dan pembahasan kimia umptn terbitan ganeca exact Bandung, iku ae dicolongno koncoku kampung nang perpustakaan kota mojokerto, soale areke pegel, jengkel, lan mblenger tak jak nang perpustakaan terus. Saiki areke dadi rajane preman mojokerto, nek pethuk aku mesti takon, yok opo bukumu rin. Yo modal buku iki aku ngerti cara cepat, lan syukur sitik sitik iso nguasai trik soal soal.
+Untung ae aku iki gembul gak arek ndablek thok, yo gembul priyayi sing pinter lan wonge apik apik, sarehne podo nang suroboyo, aku ditawani lan diajak nang suroboyo pisan, tapi aku gak melok les bimbingan belajar, lha wong mbayare larang kanggo ukuran wong proletar koyok aku, lan sing pasti, aku emoh mbebani  emakku, cukup ngene ae aku wis seneng.
+Aku cuman melok belajar teko buku bimbingan, lan melok diskusi tentang cara cara lan strategi pemecahan soal, lan ngrungokne rencanane arek arek arep nglanjutno nang jurusan opo, terus kuliah nang endi. Nek arek arek budal les, aku nang kamar ngenteni ambek nggethu ngerjakno soal, aku seneng oleh akeh variasi soal, aku nduwe pemikiran, hari pertama tes, yoiku kemampuan dasar, aku kudu iso nguasai. Aku melok optimis ndelok semangat lan cara pandang kaum priyayi, soale masalah kemampuan pas sma mereka selevel ambek aku.
+Masio gak melok kos, mek nunut thok, tapi mangan lak kudu biaya, iki masalah, mosok aku mbendino mangan sego bungkusan, terpaksa melok mek telung ndino thok. Tapi aku oleh suasana lan ketetapan hati, aku kudu melok umptn, bek e iso ngrubah taraf kehidupanku. Masalah liyane, engkok dipikir mburi, aku yakin iki dalanku, iki dalan sing diparingi Gusti ku.
+Mugo mugo iso kasil.
