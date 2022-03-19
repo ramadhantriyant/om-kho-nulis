@@ -1,0 +1,9 @@
+---
+title: Ngelesi (1)
+date: 2021-06-03 20:57:00
+tags:
+comments: false
+---
+Semester loro, aku wis terbiasa urip nang kampung Mulyorejo, ambek arek langgaran, wong kampung yo wis akrab. Aku wis dadi anggota tetap turu langgar, kadang melok mancing bareng nang kali sing ambune menyesakkan, tapi menungso diparingi anugrah yoiku nek terpaksa yo kudu di iso isokno, ben gak kenek seleksi alam jare Darwin. Malah nek bengi nang ngarepe langgar diajak main badminton, dasar aku seneng olahraga, yo seneng ae, nek raket lan piranti liyane iso nyilih, tapi masalahe aku gak duwe kathok pendek, terpaksa nggawe celono jins satu satunya, only one. Yo digawe kuliah, yo olahraga, yo balbalan, pokoke multi fungsi, ojok takon werno lan resike, mesti mbladus lan bolot thok. Untung ae nek sholat aku nduwe sarung tilasane bapak sing tak gawe jimat, dadi aku nang suroboyo nggowo sewek amohe emak ambek sarung rowak rawek tilasane bapak  gawe penyemangat olehku kuliah.
+Sebelahe langgar onok omah gede, gedong mangrong magrong, jarene arek arek iku omahe pilot garuda, dene sing wedok kerjo nang bank. Aku gak tau eruh sing lanang, sing wedok ayu menik menik, jarene  wong teko Banjar, anake siji kelas limo, dadi nek isuk podo budal dewe dewe, anake sekolah, bapak ibuke budal kerjo, anake mulih jam siji, yo ijen plek nang omah.
+Weruh aku klumbrak klumbruk nang langgar lan arek kuliah nang ITS, aku dikongkon ngelesi anake. Aku seneng ae, gawe kegiatan lan sing penting onok pemasukan, pelajaran liyane gampang ae, tapi nek pelajaran bahasa daerah, ampun setengah mati, arek turunan Banjar, biasa bahasa Indonesia, gak kenal boso Jowo, dikongkon belajar boso Jowo, mungkin nek boso Suroboyoan, mungkin ngerti, opo maneh nek misuh, faseh banget. Tapi iki kudu kromo alus, madyo, ngoko, sing ngajari ae mumet opo maneh sing diajari, mending ngajari bahasa Inggris ae luwih gampang.
