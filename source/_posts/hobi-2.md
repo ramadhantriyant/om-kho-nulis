@@ -1,0 +1,19 @@
+---
+title: Hobi (2) 
+date: 2023-01-20 13:31:00
+tags:
+comments: false
+---
+Kabeh wis tumoto rapi, peralatan kemah, klambi salin, jajan lan cemilan ora kari. Aku nggowo tas carrier nang ngarep lan tas nang samping kiri kanan sepeda, jok isine mantel udan. Wektu lan itinerary wis tak siapno jauh hari, dadi tujuan, ugo nggone nginep wis sumadyo, musim liburan ngene iki, penginapan nang tempat wisata mesti kebek, soale lagi peak season, opo maneh musim korona wis mari, wong mesti mudal kabeh, koyok iwak disangkali. 
+Budal jam sepuluh isuk, tak itung iki engkok teko enggon sekitar 3 jam, soale sepedaan santai, ora gupuh, ambek nikmati perjalanan. 
+Teko sarangan magetan jam siji, leren disik nang pinggir telogo, ndelok wong numpak perahu, tuku sate kelinci gawe tombo pingin, cek tau eruh rasane, mangan koyok biasane gathik dirasakno, langsung diuntal ae, wedi tuman, nggarai tuku maneh. Kegiatan sing gak oleh kari yoiku photo selpi, photo keadaan, photo wong liyane. Nek jajan lan oleh oleh, alah podo ae ambek nang omah, anak anakku gak onok sing tertarik. 
+Mendunge tambah peteng, pedut kandel terus mudun, suasane koyok surup, ditambah tletik udan, age age budal maneh nang tawang mangu, saperlu nang penginapan sing wis dipesen. Aku takon nang tukang parkir, " Hotel nang pinggir telogo niku sakniki pinten regane pak  ?", wonge njawab ambek nyusuki duik parkir, " Wah saiki regane gunggungan mas, mundak hampir 3 nganti 5 kali lipat, mumpung jarene ".
+Ngliwati cemoro kandang, terus perbatasan Jawa Timur ambek Jawa Tengah, mlebu Cemoro Sewu, bablas nang Tawangmangu, sak dalan dalan isine cafe lan warung. 
+Ngandalno mbah gugel, aku nggoleki penginapan sing wis tak pesen, riwa riwi tetep gak ketemu, akhire mbalik asal koyok biyen, takon wong nang warung. Iku lho mas, sing akeh mobile, sing ngarepe onok rumah makane. 
+Aku mlebu nglunyur ae, terus sepeda tak klumbrukno nang pinggir tembok, sing duwe rumah makan ketoke siaga, terus metu ndelok rombongan sepeda sing isine wong gak kramut. Wonge ujar nang aku, " Pak Firdaus ya, ini kamar standard nomer 15 ", wonge ndelok ambek mendelik. 
+" Ini kamare alit, mboten cekap kangge tiyang sak monten, niki wonten villa, regane mung sak juta ". Genti aku sing mendelik krungu turu sewengi ae sak juta. Atiku wis pepes, alum, anyes koyok hawane udan sing tambah deres. 
+" Monggo dipirsani rumiyin kamare ", tibake kamare mung cukup gawe wong loro, kasure model lawas, model dipan sing onok longane. Wah yok opo iki, kadung tekan kene, udan pisan. Aku marane wonge, " Bu, mboten wonten kamar malih  ?, ", jarene wis gak onok, iki ae royokan, batinku, sumbunge rek, mumpung rame, musim korona wingi lak ngowoh njenengan. 
+Aku ngomong nang anak anakku, wis lebokno sepeda lan kabeh tase, anakku manut, klunuk klunuk mlebu ambek nyangking tas, mlebu rodok adoh. Udane sansoyo deres, ademe ora njamak. Terus aku nututi karo mikir, yok opo iki, ndolek penginapan liyane ndadak ngene iki yo gak mungkin onok, awak wis kesel lan udan pisan. Lantai kamar uademe cles nang dlamakan sikil, kamar cuilik, cukup mek wong loro, iku wis pepetan. Anakku wis gak ngreken ngunu iku, sing penting wis iso metangkrik nang duwur kasur, wis guyon sak dulure. 
+Mari magriban nang musholla, aku marani wonge, apen apen pesen maem rawon, langsung tak maem cepet cepet, aku nang kasir ambek ngomong nggawe ilmu melas, " Bu, nopo kantuk tambah extra bed  ? ", 
+Wonge ambek mencureng, njawab oleh, tapi regane ngalahi regane kamar standard, aku seneng masio rodok larang, sing penting iso turu. 
+Kasur tak beber nang ngisor dipan, dadi aku ambek anak anakku lanang turu nang njero longan, cuman sirah thok sing nang njobo. Umpel umpelan koyok totoan pindang, untung ae howone adem, kok panas lak sido mateng temenan pindange.
